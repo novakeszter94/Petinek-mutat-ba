@@ -1,2 +1,2 @@
 # Petinek-mutat-ba
-nagyon szeretsz igaz?
+00000
